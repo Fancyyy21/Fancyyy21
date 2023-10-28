@@ -1,4 +1,4 @@
-# Hola Halo!!! 👋
+# Hi, Everyone!!! 👋
 
 Perkenalkan nama saya **Maulana Imanulhaq N.**.  
 
